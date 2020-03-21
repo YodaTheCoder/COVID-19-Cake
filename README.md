@@ -41,7 +41,7 @@ Refrigerated for at least 30 minutes to set the crumb coat. Maybe enjoy a slice 
 
 Mixed up another batch of buttercream as above and applied a liberal coating to the cake, then smoothed it out to make a perfect base for the fondant icing. Neglected to take a photograph of this step :|
 
-Got 3 packs of [red Renshaw icing](https://www.lakeland.co.uk/15456/Renshaw-Ready-to-Roll-Coloured-Icing---250g-Red) and smushed them all together, rolled them out to between 3-5mm thick. Follow the instructions on this [Cupcake Jemma](https://www.youtube.com/watch?v=z3WKpb_OxA8) video. 
+Got 3 packs of [red Renshaw icing](https://www.lakeland.co.uk/15456/Renshaw-Ready-to-Roll-Coloured-Icing---250g-Red) and smushed them all together, rolled them out to between 3-5mm thick. Following the instructions on this [Cupcake Jemma](https://www.youtube.com/watch?v=z3WKpb_OxA8) video. 
 
 Considered afterwards that maybe 1 pack would have been enough...
 
